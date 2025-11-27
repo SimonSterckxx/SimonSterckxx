@@ -1,5 +1,5 @@
 # 💫 About Me:
-I'm currently working on developing community resources for the VaultSpeed community<br>I'm working for the company to guide users in their journey through the Datavault 2.0 world<br>I'm going to the gym before work
+I'm currently working on developing community resources for the VaultSpeed community<br>I'm working for the company to guide users in their journey through the Datavault 2.0 world<br>
 
 
 ## 🌐 Socials:
